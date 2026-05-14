@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with best breakout trading bot Executor | scalping-strategies + low-frequency-execution, the #1 breakout trading bot. Includes scalping-strategies and
 
 
 
